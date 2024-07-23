@@ -2,7 +2,8 @@
 - 👀 I’m interested in Data Analytics
 - 🌱 I’m currently learning Finance
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach kushaltank63@gmail.com / https://www.linkedin.com/in/kushal tank-334724252/
+- 📫 How to reach kushaltank63@gmail.com /
+- https://www.linkedin.com/in/kushal tank-334724252/
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
